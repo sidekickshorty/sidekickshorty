@@ -1,6 +1,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ
 ![GOO](https://user-images.githubusercontent.com/127577823/224464109-1ab6f796-c598-4ed2-85d3-2893048555b6.png) **[Y](https://youtu.be/JYqqJCnP7oE)OU'~~RE~~ OFF~~IC~~ALLY [C](https://youtu.be/JYqqJCnP7oE)~~OMI~~NG WITH M~~E~~ `!` [Y](https://youtu.be/JYqqJCnP7oE)OU ~~G~~OT TH~~AT~~ [A](https://youtu.be/JYqqJCnP7oE)H AH AH `?!`**
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![GEKKO](https://user-images.githubusercontent.com/127577823/224464402-bad5a393-eba2-40e4-946c-aeaf4787b8b5.png)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![GOOO](https://user-images.githubusercontent.com/127577823/224464217-d6524456-966e-4e15-af3e-4a752e0b4065.png)
